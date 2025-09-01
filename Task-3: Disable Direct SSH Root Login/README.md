@@ -1,2 +1,0 @@
-
-Na we de here
